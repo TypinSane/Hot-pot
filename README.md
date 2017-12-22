@@ -1,2 +1,3 @@
 # Hot-pot
-i like Hot-pot in ChengDu
+i love Hot-pot in ChengDu
+I love Chengdu
